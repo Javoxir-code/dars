@@ -1,0 +1,1 @@
+salom qanday sizlar
